@@ -1,16 +1,17 @@
-## Hi there 👋
+## HI YE
 
 <!--
 **AlmojabanaSanadora/AlmojabanaSanadora** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
 -->
+
+- SO LIKE, im studying game development ye
+- IM TRYNA, YE TRYNA, learn italian, spanish is my first language ye
+- IM LOOKING TO GET A JOB SOON AS GAME DEV 
+- IM TRYNA BE AN UNITY PRO DEV
+- U CAN ASK ME ABOUT MUSIC BC I LITERALLY LISTEN TO ANYTHING BRO LIKE FR
+- Uhm ye, u can reach me through like (vxshy@hotmail.com) or like just say my name three times
+- IM LIKE A HE/HIM
+- I'VE ACCIDENTALLY HIT MY HEAD SO MANY TIMES IT DONT HURT ANYMORE
+
