@@ -11,7 +11,5 @@ Here are some ideas to get you started:
 - IM LOOKING TO GET A JOB SOON AS GAME DEV 
 - IM TRYNA BE AN UNITY PRO DEV
 - U CAN ASK ME ABOUT MUSIC BC I LITERALLY LISTEN TO ANYTHING BRO LIKE FR
-- Uhm ye, u can reach me through like (vxshy@hotmail.com) or like just say my name three times
-- IM LIKE A HE/HIM
 - I'VE ACCIDENTALLY HIT MY HEAD SO MANY TIMES IT DONT HURT ANYMORE
 
