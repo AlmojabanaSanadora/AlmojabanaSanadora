@@ -5,13 +5,11 @@
 
 Here are some ideas to get you started:
 -->
-
-2007 
+ 
 Colombian - Venezuelan
 Human Male
 
-- Studying Mechanical Engineering and Game Development (Unity)
+- Mechanical Engineering and Game Development (Unity)
 - Spanish, English & lowk Italian
-- Music Weirdo, listen to anything and everything
 - Hit my head so many times it dont even hurt anymore
 
